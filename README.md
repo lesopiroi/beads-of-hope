@@ -1,1 +1,1 @@
-# beads-of-hope
+Beads of hope in collaboration with local artisans in Samburu county, we aim to enhance livelihoods through the ancient art of beading. By offering comprehensive training programs, access to quality materials, and market linkages, we empower community members to create exquisite beadwork
