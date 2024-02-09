@@ -28,10 +28,10 @@ Table of Contents
 Project Name: BEADS OF HOPE 
 1. INTRODUCTION
 1.1 Background information
-The Beads of hope project aims to empower the community in Samburu County through the ancient art of beadwork. By collaborating with local artisans, we seek to enhance livelihoods, preserve cultural heritage, and foster economic resilience.
+The Beads of hope project aims to empower the community in Samburu County through the ancient art of beadwork. 
 Beads of hope in collaboration with local artisans in Samburu County, we aim to enhance livelihoods through the ancient art of beading. By offering comprehensive training programs, access to quality materials, and market linkages, we empower community members to create exquisite beadwork that showcases Samburu's rich cultural heritage.
 This project goes beyond skill development; it's a holistic approach to economic upliftment. Through workshops on design, quality control, and entrepreneurship, participants gain the knowledge and tools to establish their own beadwork enterprises. Additionally, we facilitate market connections, enabling artisans to sell their creations both locally and globally, thereby expanding their reach and income potential.
-By marrying tradition with economic opportunity, Beads of hope not only preserves the cultural legacy of beadwork but also ensures sustainable livelihoods for the artisans, fostering resilience and prosperity in Samburu County. Create for me a project that entails: goals, objectives, specific tasks and how goals are achieved, identify resources, associated budget, and timelines of completion, who will do.
+By marrying tradition with economic opportunity, Beads of hope not only preserves the cultural legacy of beadwork but also ensures sustainable livelihoods for the artisans, fostering resilience and prosperity in Samburu County. 
 1.2 Goals and Objectives
 1.2.1 Goals:
 Empower Samburu community members through beadwork.
